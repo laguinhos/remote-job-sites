@@ -1,3 +1,4 @@
+EU ALTEREI HEHE
 This comprehensive guide introduces you to over 50 top remote job portals, each with its unique features, and provides essential tips for a successful job search. 
 
 Whether you're exploring niche boards, regional options, or general job platforms, this guide has got you covered. 
